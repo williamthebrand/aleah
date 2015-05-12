@@ -18,4 +18,6 @@ After dark fell, things went from bad to worse, the temperature plummeted. I had
 
 I laid that night awake, in the front of my car. Dreaming of the life that I had in the past, dreaming of you. I remember feeling the numb cold take grasp of my body, and this over whelming sense of exhaustion pull me to sleep. the sounds of the empty wilderness surrounded me as the ice crystals began to form on the windshield of my car. 
 
-It was at that moment, I started to lose faith. I had never really been so unprepared before and found compromised of my safety and health. 
+It was at that moment, I started to lose faith. I had never really been so unprepared before and found compromised of my safety and health. I had also never felt such great cold before. 
+
+But out of all the cold and numbness, I held onto the most beautiful thought. I held onto that thought go give me the strength and allow ner toi aty myself through. 

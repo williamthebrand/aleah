@@ -3,5 +3,5 @@
 * [README](README.md)
 * [introduction](introduction.md)
 * [Epologue](epologue.md)
-* Church_meet
+* [Church_meet](churchmeet.md)
 

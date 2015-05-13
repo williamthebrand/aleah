@@ -1,2 +1,3 @@
 # Church_meet
 
+I was eager in my earlier years, to answer all of life's questions. To find all the mysteries there are to be discovered. But alas then this. was the time in my life for me to branch out and discover new things. Particularly at this time I was working on whether or not I believed in a god, and how it would be best to serve him. I had found a cute church on the corner of one of the main streets in salt lake city. Being in true southern fashion, I slept late and attempted my best to make it to the night service. When arriving at the little church, I noticed that the circus was in town, and there was much joy events to see. It was fairly obvious the chruch was clsed.

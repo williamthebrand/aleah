@@ -22,3 +22,16 @@ The eruption proved enough for the both of us. That somehow this was different.
 Although she is long gone, and that person has ceased to exist, because that time in our life is over and we cannot go back. I have come to understand, that really remembering her as she was. She would not want me, to be living like this. She would truly want me to be assurred in myself, that it was not whether or not I was good enough. She was constantly forcing me to believe in myself, and not doubt my own character. She wanted me to be much more confident in myself, because it was that confident person inside me that she loved the most. She believed in me deeply, and urged me to do the same.
 
 So, after all these years, the best way that I know to honor her, is to believe and never doubt myself or my thoughts again. This is what she would want of me to do.
+
+----
+
+# Why does not Gitbook, hard wrap lines?
+
+# I want hard wrap? NOT Soft wrap....
+
+#Yeah that is pretty ridiculous...
+
+#Hard wrap that...Bitches...
+
+----
+

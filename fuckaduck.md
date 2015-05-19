@@ -1,6 +1,5 @@
 <center><h1>Ducks are racists, all of them.</h1></center>
-<code> 
-<h6>Quack, Quack to you; you racist mother fucking ducks...</h6></code>
+<h6>Quack, Quack to you; you racist mother fucking ducks...</h6>
 <h4>Now back to our program...</h4>
 ----
 
